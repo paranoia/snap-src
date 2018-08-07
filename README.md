@@ -1,10 +1,7 @@
-# Source-SnapChat
-Source for SnapChat
+# ur mom gay
 
-.
+ur mom gay
 
-.
+ur mom gay
 
-By The Legend 0f Khaled                                                                                                      
-
-@i5aaaald
+ur mom gay
