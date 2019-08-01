@@ -1,7 +1,3 @@
-# ur mom gay
+# snap source
 
-ur mom gay
-
-ur mom gay
-
-ur mom gay
+old leaked source from app
